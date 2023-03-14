@@ -11,3 +11,6 @@ Run the Game2.exe file when you want to play the hacked version and Game.exe whe
 Remember you if you are either playing Orginal version or the Hacked version your data will still remain same so you dont have to worry about your loss of data or reset of the game :)
 
 You can checkout other hacked games versions of ToomkyGames at Here:- [ToomkyGames - Hacked](https://github.com/Sudo-Hero/ToomkyGames.com-Hacked)
+
+# Demo
+[![Doodle God - Genesis Secrets - Mana Hack](https://i.ytimg.com/vi/FWvYy0DXbRg/hqdefault.jpg?sqp=-oaymwEcCPYBEIoBSFXyq4qpAw4IARUAAIhCGAFwAcABBg==&rs=AOn4CLDyk1WZ1qyfTV6RlytDcDNJYyNC4Q)](https://www.youtube.com/watch?v=FWvYy0DXbRg)
